@@ -1,2 +1,2 @@
-# example2
-this repo is just to practice 
+# example2 repo
+lorem ipsom dollar and my name dollar is the best way to talk to mr india and juhi lela
